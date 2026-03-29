@@ -1,1 +1,0 @@
-# zonixx-fitness
